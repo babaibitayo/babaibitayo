@@ -2,7 +2,7 @@
 - 👀 I’m practically interested in everything Tech related
 - 🌱 I’m currently learning to become a DevOps engineer & a badass mobile app creator.
 - 💞️ I’m looking to collaborate on any projects that is humanity-oriented and economically viable.
-- 📫 How to reach me: olumideomoyeni@yahoo.com
+- 📫 How to reach me: fredoluwilliams@gmail.com, olumideomoyeni@yahoo.com
 - ⚡ Fun fact: I love fun for a fact (pun intended:)
 
 <!---
